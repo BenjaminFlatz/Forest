@@ -1,49 +1,49 @@
 1. Reishi – Der Pilz der Unsterblichkeit
 
-    Beschreibung: Entdecken Sie mit Reishi den "Pilz der Unsterblichkeit" und spüren Sie die Kraft der Natur. Dieser besondere Vitalpilz unterstützt Ihr Immunsystem, fördert die Entspannung und hilft dem Körper, Stress zu bewältigen. Seine antioxidativen und entzündungshemmenden Eigenschaften machen Reishi zu einem idealen Begleiter für ein gesundes, ausgeglichenes Leben.
+    Beschreibung: Reishi, auch bekannt als "Pilz der Unsterblichkeit", ist ein wahres Superfood für Körper und Geist. Seine adaptogenen Eigenschaften helfen dem Körper, besser mit Stress umzugehen, das Immunsystem zu stärken und das Wohlbefinden zu fördern. Mit Reishi unterstützen Sie die Zellgesundheit und tragen zur Entlastung von Herz und Kreislauf bei. Seine kraftvollen Inhaltsstoffe wirken antioxidativ und entzündungshemmend – ideal für jeden, der seine Vitalität bewahren möchte.
     Inhaltsstoffe: Triterpene, Polysaccharide (Beta-Glucane), Sterole, Peptidoglykane, Adenosin, Alkaloide, organisches Germanium
 
-2. Shiitake – Natürliche Immunstärkung
+2. Shiitake – Die natürliche Immunstärkung
 
-    Beschreibung: Shiitake ist weit mehr als nur ein Speisepilz – er ist ein wahres Immun-Wunder! Mit wertvollen Beta-Glucanen und dem einzigartigen Lentinan stärkt Shiitake Ihre Abwehrkräfte und fördert die Herzgesundheit. Ideal für alle, die auf natürliche Weise das Immunsystem unterstützen und gleichzeitig den Cholesterinspiegel in Balance halten möchten.
+    Beschreibung: Shiitake ist nicht nur ein köstlicher Speisepilz, sondern auch ein Vitalpilz mit enormem gesundheitlichen Potenzial. Seine reichhaltigen Beta-Glucane und das Lentinan stärken das Immunsystem und unterstützen die natürliche Abwehrkraft des Körpers. Shiitake hilft zudem, den Cholesterinspiegel zu regulieren und fördert die Herzgesundheit – eine perfekte Ergänzung für einen gesunden Lebensstil.
     Inhaltsstoffe: Lentinan, Beta-Glucane, Ergosterol, B-Vitamine, Mineralstoffe (Kupfer, Zink, Mangan)
 
-3. Maitake – Immunsystem und Blutzucker in Balance
+3. Maitake – Der Pilz für Immunsystem und Blutzucker
 
-    Beschreibung: Der Maitake-Pilz, auch als "König der Pilze" bekannt, ist ein natürlicher Helfer für das Immunsystem und die Blutzuckerregulation. Seine einzigartigen Inhaltsstoffe fördern eine stabile Insulinempfindlichkeit und unterstützen die Balance des Blutzuckerspiegels. Perfekt für alle, die auf eine starke Abwehr und gesunde Blutzuckerwerte setzen.
+    Beschreibung: Maitake, auch als „König der Pilze“ bekannt, ist ein außergewöhnlicher Vitalpilz, der das Immunsystem stärkt und zur Regulierung des Blutzuckers beitragen kann. Seine wertvollen Inhaltsstoffe fördern eine stabile Insulinempfindlichkeit und unterstützen die Balance des Blutzuckerspiegels. Optimal für alle, die ihre Immunabwehr auf natürliche Weise unterstützen möchten.
     Inhaltsstoffe: Beta-Glucane (Grifolan), Ergosterol, Proteine, Ballaststoffe, Vitamine (insbesondere B-Vitamine)
 
-4. Cordyceps – Energie für Körper und Geist
+4. Cordyceps – Der Energie-Boost aus der Natur
 
-    Beschreibung: Cordyceps ist die natürliche Energiequelle für aktive Menschen und Sportler! Dieser Vitalpilz fördert die Sauerstoffaufnahme und steigert die Leistungsfähigkeit auf natürliche Weise. Er unterstützt das Immunsystem und stärkt die Lungenfunktion – ideal für alle, die ihr Wohlbefinden steigern und Müdigkeit bekämpfen möchten.
+    Beschreibung: Cordyceps ist bekannt für seine revitalisierende Wirkung auf Körper und Geist. Der Pilz verbessert die Sauerstoffaufnahme und steigert die Energieproduktion auf natürliche Weise – perfekt für Sportler und Menschen mit einem aktiven Lebensstil. Zudem stärkt Cordyceps die Immunabwehr und unterstützt die Lungenfunktion. Für alle, die ihre Leistungsfähigkeit steigern und Müdigkeit entgegenwirken möchten, ist Cordyceps ein Must-have!
     Inhaltsstoffe: Cordycepin, Adenosin, Polysaccharide, Sterole, Proteine, Vitamine (B-Komplex)
 
-5. Hericium – Gehirn und Nervensystem im Fokus
+5. Hericium – Der Nährstoff-Booster für das Gehirn
 
-    Beschreibung: Der Hericium-Pilz, auch Igelstachelbart genannt, ist ein besonderer Vitalpilz für Gehirn und Nerven. Seine Inhaltsstoffe unterstützen die Regeneration von Nerven und fördern Konzentration und Gedächtnisleistung. Ideal für alle, die ihre mentale Leistungsfähigkeit steigern und das Nervensystem stärken möchten.
+    Beschreibung: Hericium, auch als „Igelstachelbart“ bekannt, ist ein außergewöhnlicher Pilz, der Gehirn und Nervensystem unterstützt. Seine speziellen Inhaltsstoffe fördern die Regeneration von Nerven und wirken sich positiv auf Gedächtnis und Konzentration aus. Ein wertvoller Begleiter für alle, die ihre mentale Leistungsfähigkeit steigern und das Nervensystem stärken möchten.
     Inhaltsstoffe: Erinacine, Hericenone, Polysaccharide, Diterpene
 
-6. Chaga – Natürlicher Zellschutz für ein gesundes Leben
+6. Chaga – Die natürliche Quelle für Zellschutz
 
-    Beschreibung: Der Chaga-Pilz ist eine wahre Antioxidantienquelle, die Ihre Zellen vor schädlichen freien Radikalen schützt und die Immunabwehr stärkt. Seine entzündungshemmenden Eigenschaften unterstützen die Verdauung und fördern die Lebergesundheit. Der perfekte Begleiter für alle, die Wert auf eine umfassende Zellgesundheit legen.
+    Beschreibung: Chaga ist ein wahres Kraftpaket an Antioxidantien, das die Zellen vor freien Radikalen schützt und die Immunabwehr stärkt. Seine entzündungshemmenden Eigenschaften fördern die Verdauung und unterstützen die Gesundheit der Leber. Dieser „König der Heilpilze“ ist eine perfekte Wahl für alle, die ihre Zellgesundheit auf natürliche Weise fördern möchten.
     Inhaltsstoffe: Beta-Glucane, Triterpene, Melanin, Polysaccharide, Mineralstoffe (Zink, Mangan, Kalzium), Vitamin D
 
-7. Agaricus blazei – Der Immunbooster für starke Abwehrkräfte
+7. Agaricus blazei – Der Immunbooster für Ihr Wohlbefinden
 
-    Beschreibung: Agaricus blazei, auch ABM genannt, stärkt das Immunsystem auf natürliche Weise und hilft, den Blutzucker zu regulieren. Mit seinen Beta-Glucanen unterstützt dieser Pilz auch therapeutische Prozesse und ist damit ideal für alle, die ihre Gesundheit rundum fördern möchten.
+    Beschreibung: Agaricus blazei, auch bekannt als ABM, stärkt das Immunsystem und unterstützt die körpereigene Abwehr. Dieser Pilz ist reich an Beta-Glucanen und wirkt unterstützend in der Krebstherapie. Auch für eine gesunde Blutzuckerregulation ist ABM ideal und damit perfekt für Menschen, die ihre Gesundheit ganzheitlich unterstützen möchten.
     Inhaltsstoffe: Beta-Glucane, Proteine, Vitamin B-Komplex, Ergosterol
 
-8. Polyporus – Die natürliche Unterstützung für Nieren und Entwässerung
+8. Polyporus – Der natürliche Nierenfreund
 
-    Beschreibung: Polyporus, auch als "Entwässerungspilz" bekannt, fördert die natürliche Entwässerung und stärkt die Nierenfunktion. Er unterstützt die Linderung von Ödemen und trägt zur allgemeinen Entlastung des Körpers bei. Perfekt für alle, die auf sanfte Weise ihre Gesundheit fördern möchten.
+    Beschreibung: Polyporus, auch bekannt als Entwässerungspilz, unterstützt die natürliche Entwässerung des Körpers und fördert eine gesunde Nierenfunktion. Er ist besonders hilfreich bei Ödemen und stärkt das Immunsystem – ideal für Menschen, die auf eine schonende Entwässerung setzen und gleichzeitig das Wohlbefinden steigern möchten.
     Inhaltsstoffe: Polysaccharide, Ergosterol, Vitamin D, Kalium
 
 9. Auricularia – Herzgesundheit und Blutzirkulation im Fokus
 
-    Beschreibung: Der Auricularia-Pilz, auch als Mu-Err bekannt, fördert die Blutzirkulation und unterstützt die Herzgesundheit. Seine Inhaltsstoffe wirken antioxidativ und blutverdünnend – perfekt für alle, die Herz und Kreislauf auf natürliche Weise stärken möchten.
+    Beschreibung: Auricularia, auch bekannt als Mu-Err oder Judasohr, unterstützt die Herzgesundheit und kann zur Verbesserung der Blutzirkulation beitragen. Seine Inhaltsstoffe wirken blutverdünnend und antioxidativ, wodurch sie das Herz-Kreislauf-System unterstützen und gleichzeitig zur Vitalität des Körpers beitragen. Eine wunderbare Ergänzung für Ihre tägliche Gesundheit!
     Inhaltsstoffe: Beta-Glucane, Adenosin, Polysaccharide, Vitamine und Mineralstoffe (Eisen, Magnesium, Kalium)
 
-10. Enoki – Für ein starkes Immunsystem und Vitalität
+10. Enoki – Der Vitalpilz für Immunstärke und Vitalität
 
-    Beschreibung: Enoki ist ein echter Vitalpilz und stärkt die Abwehrkräfte auf natürliche Weise. Seine wertvollen Inhaltsstoffe wirken antitumoral und antioxidativ und fördern die allgemeine Vitalität – ideal für alle, die ihrem Körper das Beste aus der Natur bieten möchten.
+    Beschreibung: Enoki ist ein Vitalpilz mit beachtlichen antitumoralen und antioxidativen Effekten. Seine Wirkstoffe stärken das Immunsystem und steigern die allgemeine Vitalität – ideal für jeden, der sein Immunsystem auf natürliche Weise unterstützen und seine Gesundheit verbessern möchte.
     Inhaltsstoffe: Polysaccharide, Beta-Glucane, Proteine, Vitamine (insbesondere Vitamin B3 und B5), Mineralstoffe (Eisen, Kalium, Kupfer)
